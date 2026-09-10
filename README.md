@@ -1,5 +1,51 @@
-## Hi there 👋
+##
+<p align="right">  <img src="https://github.com/user-attachments/assets/f6d3c4d5-872a-4b0e-b781-0d35adce57dc" width="80" alt="happy smile damian"></p>
 
+
+ 
+</p> <p align="center">
+  <img src="https://static2.klipy.com/ii/39f2394ae36df6e199be9eb7c9fa1012/9e/84/AB4rtva9.gif" width="400" alt="cute popplio"> 
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/691fe158-d322-4265-b950-46f41c42cf33" />
+</p>
+
+$${\color{#34c6eb}\text{hi}}$$
+
+$${\color{#349beb}\text{add text}}$$     
+<p align="center">
+<img src="https://media.tenor.com/smXomw1Rz2kAAAAi/brionne-pokemon.gif" width="80" alt="a very cutie pattotie">
+</p>
+
+$${\color{#2148bf}\text{<-in between these->}}$$
+
+$${\color{#133391}\text{ok}}$$
+
+## add text here (optional) <p align="centee"> 
+<img src="https://github.com/user-attachments/assets/37ad058a-40cd-429c-bc96-cbfd5873612f" width="80" alt="damian say ah my apologies idk">
+</p>
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/b73187b6-b470-49a1-8a87-959871a628eb" width="450" alt="idk" >
+</p>
+
+<p align="center">
+  <img src="https://static2.klipy.com/ii/c3a19a0b747a76e98651f2b9a3cca5ff/0f/03/WhWnwVq2.gif" width="400" alt="jirachi eating a apple">
+</p>
+
+$${\color{#f1ff26}\text{hi}}$$
+
+$${\color{#baff26}\text{add text}}$$
+
+<p align="center">
+<img src="https://media.tenor.com/KpFYyUDwHeYAAAAi/pokemon-cute.gif" width="100" alt="jirachi">
+</p>
+
+$${\color{#84ff26}\text{mentions gaburgersnail}}$$
+
+$${\color{#2bdb14}\text{ok sorry}}$$
+
+##
 <!--
 **omgkawaiidamiann/omgkawaiidamiann** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
