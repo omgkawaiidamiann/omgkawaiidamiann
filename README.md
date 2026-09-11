@@ -19,7 +19,7 @@ $${\color{#349beb}\text{🌊⋆｡𖦹 °.i am damian🐚⋆❀˖°🫧}}$$
 
 $${\color{#2148bf}\text{˙ . ꒷ 🍙 i really like to draw 𖦹˙— 🐈‍⬛}}$$
 
-$${\color{#133391}\text{(motivated once or twice a month}}$$
+$${\color{#133391}\text{‧₊˚ ☁️⋅⋆motivated once ♡r twice a month🪐༘)}}$$
 
 ## add text here (optional) <p align="centee"> 
 <img src="https://github.com/user-attachments/assets/37ad058a-40cd-429c-bc96-cbfd5873612f" width="80" alt="damian say ah my apologies idk">
