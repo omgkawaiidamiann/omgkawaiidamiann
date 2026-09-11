@@ -43,7 +43,7 @@ $${\color{#baff26}\text{⋆｡·°ʚthen i got into NSO🍓,loving KAngel's desi
 
 $${\color{#84ff26}\text{₍ᐢ.  ̫.ᐢ₎。🥎i didnt wanna look like im impersonating🧶}}$$
 
-$${\color{#2bdb14}\text{༄˖°.🍃and boom, OMGKawaiiDamiann was formed🍎.ೃ࿔*:･}}$$
+$${\color{#2bdb14}\text{༄˖°.🍃and boom, OMGKawaiiDamiann was formed by blending PMdamiann and OMGKawaii Angel 🍎.ೃ࿔*:･}}$$
 
 ##
 <!--
