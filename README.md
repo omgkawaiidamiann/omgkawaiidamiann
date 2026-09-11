@@ -4,7 +4,7 @@
 
  
 </p> <p align="center">
-  <img src="https://static2.klipy.com/ii/39f2394ae36df6e199be9eb7c9fa1012/9e/84/AB4rtva9.gif" width="400" alt="cute popplio"> 
+  <img src="https://media1.tenor.com/m/Il74JgNRpskAAAAC/popplio-lana.gif" width="400" alt="cute popplio"> 
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/691fe158-d322-4265-b950-46f41c42cf33" />
