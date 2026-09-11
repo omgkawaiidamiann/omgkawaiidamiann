@@ -12,7 +12,7 @@
 
 $${\color{#34c6eb}\text{.𖥔 ݁ ˖ִ🛸welcome to my github!🌕༄˖°.}}$$
 
-$${\color{#349beb}\text{🌊⋆｡𖦹 °.i am damian🐚⋆❀˖°🫧}}$$     
+$${\color{#349beb}\text{🌊⋆｡𖦹 °.i am damian (uses he/him)🐚⋆❀˖°🫧}}$$     
 <p align="center">
 <img src="https://media.tenor.com/smXomw1Rz2kAAAAi/brionne-pokemon.gif" width="80" alt="a very cutie pattotie">
 </p>
