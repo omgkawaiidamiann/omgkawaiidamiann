@@ -17,7 +17,7 @@ $${\color{#349beb}\text{🌊⋆｡𖦹 °.i am damian🐚⋆❀˖°🫧}}$$
 <img src="https://media.tenor.com/smXomw1Rz2kAAAAi/brionne-pokemon.gif" width="80" alt="a very cutie pattotie">
 $${\color{#2148bf}\text{˙ . ꒷ 🍙 i really like to draw 𖦹˙— 🐈‍⬛}}$$
 
-$${\color{#133391}\text{‧₊˚ ☁️⋅⋆спасибо @paperflavored for ts readme🪐༘)}}$$
+$${\color{#133391}\text{‧₊˚☁️⋅⋆спасибо @paperflavored for ts readme🪐༘)}}$$
 
 ## ✩°𓏲⋆🌿.how i got my name⋆⸜ 🍵✮˚ <p align="centee"> 
 <img src="https://github.com/user-attachments/assets/37ad058a-40cd-429c-bc96-cbfd5873612f" width="80" alt="damian say ah my apologies idk">
@@ -31,7 +31,7 @@ $${\color{#133391}\text{‧₊˚ ☁️⋅⋆спасибо @paperflavored for t
   <img src="https://static2.klipy.com/ii/c3a19a0b747a76e98651f2b9a3cca5ff/0f/03/WhWnwVq2.gif" width="400" alt="jirachi eating a apple">
 </p>
 
-$${\color{#f1ff26}\text{𖦹🍀୭˚. starts w/ my fav animator, PMdamiannᵎᵎ｡🧷𖦹°‧}}$$
+$${\color{#f1ff26}\text{𖦹🍀୭˚. starts w/ my fav animator PMdamiannᵎᵎ｡🧷𖦹°‧}}$$
 
 $${\color{#baff26}\text{⋆｡·°ʚthen i got into NSO🍓ɞ°‧｡⋆}}$$
 
@@ -41,7 +41,7 @@ $${\color{#baff26}\text{⋆｡·°ʚthen i got into NSO🍓ɞ°‧｡⋆}}$$
 
 $${\color{#84ff26}\text{₍ᐢ.  ̫.ᐢ₎。🥎i dont wann impersonate🧶}}$$
 
-$${\color{#2bdb14}\text{༄˖°.🍃and boom, OMGKawaiiDamiann was forme 🍎.ೃ࿔*:･}}$$
+$${\color{#2bdb14}\text{༄˖°.🍃and OMGKawaiiDamiann was made 🍎.ೃ࿔*:･}}$$
 
 ##
 <!--
