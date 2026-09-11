@@ -21,7 +21,7 @@ $${\color{#2148bf}\text{˙ . ꒷ 🍙 i really like to draw 𖦹˙— 🐈‍⬛
 
 $${\color{#133391}\text{‧₊˚ ☁️⋅⋆motivated once ♡r twice a month🪐༘)}}$$
 
-## add text here (optional) <p align="centee"> 
+## ✩°𓏲⋆🌿.how i got my name⋆⸜ 🍵✮˚ <p align="centee"> 
 <img src="https://github.com/user-attachments/assets/37ad058a-40cd-429c-bc96-cbfd5873612f" width="80" alt="damian say ah my apologies idk">
 </p>
 
@@ -33,17 +33,17 @@ $${\color{#133391}\text{‧₊˚ ☁️⋅⋆motivated once ♡r twice a month�
   <img src="https://static2.klipy.com/ii/c3a19a0b747a76e98651f2b9a3cca5ff/0f/03/WhWnwVq2.gif" width="400" alt="jirachi eating a apple">
 </p>
 
-$${\color{#f1ff26}\text{hi}}$$
+$${\color{#f1ff26}\text{𖦹🍀୭˚. it all starts with my fav roblox animator, PMdamiannᵎᵎ｡🧷𖦹°‧}}$$
 
-$${\color{#baff26}\text{add text}}$$
+$${\color{#baff26}\text{⋆｡·°ʚthen i got into NSO🍓,loving KAngel's designɞ°‧｡⋆}}$$
 
 <p align="center">
 <img src="https://media.tenor.com/KpFYyUDwHeYAAAAi/pokemon-cute.gif" width="100" alt="jirachi">
 </p>
 
-$${\color{#84ff26}\text{mentions gaburgersnail}}$$
+$${\color{#84ff26}\text{₍ᐢ.  ̫.ᐢ₎。🥎i didnt wanna look like im impersonating🧶}}$$
 
-$${\color{#2bdb14}\text{ok sorry}}$$
+$${\color{#2bdb14}\text{༄˖°.🍃and boom, OMGKawaiiDamiann was formed🍎.ೃ࿔*:･}}$$
 
 ##
 <!--
