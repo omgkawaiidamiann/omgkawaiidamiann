@@ -10,9 +10,9 @@
   <img src="https://github.com/user-attachments/assets/691fe158-d322-4265-b950-46f41c42cf33" />
 </p>
 
-$${\color{#34c6eb}\text{hi}}$$
+$${\color{#34c6eb}\text{.𖥔 ݁ ˖ִ🛸welcome to my github!🌕༄˖°.}}$$
 
-$${\color{#349beb}\text{add text}}$$     
+$${\color{#349beb}\text{🌊⋆｡𖦹 °.i am damian🐚⋆❀˖°🫧}}$$     
 <p align="center">
 <img src="https://media.tenor.com/smXomw1Rz2kAAAAi/brionne-pokemon.gif" width="80" alt="a very cutie pattotie">
 </p>
