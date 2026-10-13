@@ -12,10 +12,10 @@
 
 $${\color{#34c6eb}\text{.𖥔 ݁ ˖ִ🛸welcome to my github!🌕༄˖°.}}$$
 
-$${\color{#349beb}\text{🌊⋆｡𖦹 °.i am damian🐚⋆❀˖°🫧}}$$     
+$${\color{#349beb}\text{🌊⋆｡𖦹 °.我是damian🐚⋆❀˖°🫧}}$$     
 <p align="center">
 <img src="https://media.tenor.com/smXomw1Rz2kAAAAi/brionne-pokemon.gif" width="80" alt="a very cutie pattotie">
-$${\color{#2148bf}\text{˙ . ꒷ 🍙 i really like to draw 𖦹˙— 🐈‍⬛}}$$
+$${\color{#2148bf}\text{˙ . ꒷ 🍙 i like to draw 𖦹˙— 🐈‍⬛}}$$
 
 $${\color{#133391}\text{‧₊˚☁️⋅⋆readme by @paperflavored🪐༘)}}$$
 
