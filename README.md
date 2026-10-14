@@ -33,7 +33,7 @@ $${\color{#133391}\text{‧₊˚☁️⋅⋆readme by @paperflavored🪐༘)}}$$
 
 $${\color{#f1ff26}\text{𖦹🍀୭SOME of my pfps'ᵎᵎ｡🧷𖦹°‧}}$$
 
-$${\color{#baff26}\text{⋆｡·°ʚfrom PMdamiann's server🍓ɞ°‧｡⋆}}$$
+$${\color{#baff26}\text{⋆｡·°ʚ r from PMdamiann's server🍓ɞ°‧｡⋆}}$$
 
 <p align="center">
 <img src="https://media.tenor.com/KpFYyUDwHeYAAAAi/pokemon-cute.gif" width="100" alt="jirachi">
