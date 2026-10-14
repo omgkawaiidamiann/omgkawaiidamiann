@@ -19,7 +19,7 @@ $${\color{#2148bf}\text{˙ . ꒷ 🍙 i like to draw 𖦹˙— 🐈‍⬛}}$$
 
 $${\color{#133391}\text{‧₊˚☁️⋅⋆readme by @paperflavored🪐༘)}}$$
 
-## ✩°𓏲⋆🌿.how i got my name⋆⸜ 🍵✮˚ <p align="centee"> 
+## ✩°𓏲⋆🌿.random info⋆⸜ 🍵✮˚ <p align="centee"> 
 <img src="https://github.com/user-attachments/assets/37ad058a-40cd-429c-bc96-cbfd5873612f" width="80" alt="damian say ah my apologies idk">
 </p>
 
@@ -31,17 +31,17 @@ $${\color{#133391}\text{‧₊˚☁️⋅⋆readme by @paperflavored🪐༘)}}$$
   <img src="https://static2.klipy.com/ii/c3a19a0b747a76e98651f2b9a3cca5ff/0f/03/WhWnwVq2.gif" width="400" alt="jirachi eating a apple">
 </p>
 
-$${\color{#f1ff26}\text{𖦹🍀୭starts w/ my fav animator PMdamiannᵎᵎ｡🧷𖦹°‧}}$$
+$${\color{#f1ff26}\text{𖦹🍀‼️୭SOME‼️ of my pfps'ᵎᵎ｡🧷𖦹°‧}}$$
 
-$${\color{#baff26}\text{⋆｡·°ʚthen i got into NSO🍓ɞ°‧｡⋆}}$$
+$${\color{#baff26}\text{⋆｡·°ʚfrom PMdamiann's server🍓ɞ°‧｡⋆}}$$
 
 <p align="center">
 <img src="https://media.tenor.com/KpFYyUDwHeYAAAAi/pokemon-cute.gif" width="100" alt="jirachi">
 </p>
 
-$${\color{#84ff26}\text{₍ᐢ.  ̫.ᐢ₎。🥎i dont wann impersonate🧶}}$$
+$${\color{#84ff26}\text{₍ᐢ.  ̫.ᐢ₎。🥎my ipad is missing🧶}}$$
 
-$${\color{#2bdb14}\text{༄˖°🍃and OMGKawaiiDamiann was made 🍎.ೃ࿔:･}}$$
+$${\color{#2bdb14}\text{༄˖°🍃i still have my apple pencil 🍎.ೃ࿔:･}}$$
 
 ##
 <!--
