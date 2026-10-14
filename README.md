@@ -31,7 +31,7 @@ $${\color{#133391}\text{‧₊˚☁️⋅⋆readme by @paperflavored🪐༘)}}$$
   <img src="https://static2.klipy.com/ii/c3a19a0b747a76e98651f2b9a3cca5ff/0f/03/WhWnwVq2.gif" width="400" alt="jirachi eating a apple">
 </p>
 
-$${\color{#f1ff26}\text{𖦹🍀‼️୭SOME‼️ of my pfps'ᵎᵎ｡🧷𖦹°‧}}$$
+$${\color{#f1ff26}\text{𖦹🍀୭SOME of my pfps'ᵎᵎ｡🧷𖦹°‧}}$$
 
 $${\color{#baff26}\text{⋆｡·°ʚfrom PMdamiann's server🍓ɞ°‧｡⋆}}$$
 
