@@ -39,7 +39,7 @@ $${\color{#baff26}\text{⋆｡·°ʚ r from PMdamiann's server🍓ɞ°‧｡⋆}
 <img src="https://media.tenor.com/KpFYyUDwHeYAAAAi/pokemon-cute.gif" width="100" alt="jirachi">
 </p>
 
-$${\color{#84ff26}\text{₍ᐢ.  ̫.ᐢ₎。🥎my ipad is missing🧶}}$$
+$${\color{#84ff26}\text{₍ᐢ.  ̫.ᐢ₎。🥎found my ipad🧶}}$$
 
 $${\color{#2bdb14}\text{༄˖°🍃i still have my apple pencil 🍎.ೃ࿔:･}}$$
 
